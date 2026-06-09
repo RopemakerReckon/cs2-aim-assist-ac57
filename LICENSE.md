@@ -1,4 +1,4 @@
-
+Ultimato CS trapaça auxílio de mira é o melhor CS trapaça auxílio de mira com mira automática e morte instantânea. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
